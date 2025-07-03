@@ -1,1 +1,1 @@
-# PunktyPrzeci-cia
+# PunktyPrzeciecia
